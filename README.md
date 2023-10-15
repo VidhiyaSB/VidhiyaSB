@@ -9,7 +9,7 @@ I'm Vidhiya S B
 
 💬 I currently operate as a freelance technical writer, and I am working diligently to transition into the role of a Data Analyst.
 
-📫 You can reach out to me on Twitter: [@Vidhiyasb](https://www.twitter.com/Vidhiyasb) to connect and discuss potential collaborations or simply engage in insightful conversations.
+📫 You can reach out to me on X: [@Vidhiyasb](https://www.twitter.com/Vidhiyasb) to connect and discuss potential collaborations or simply engage in insightful conversations.
 
 ⚡ Fun fact: I have a penchant for instant coffee and am an avid bibliophile, finding solace in the world of literature.
 
