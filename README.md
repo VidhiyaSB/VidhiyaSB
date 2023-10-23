@@ -17,6 +17,7 @@ I'm Vidhiya S B
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=VidhiyaSB)](https://github.com/ryo-ma/github-profile-trophy)
 
+[![An image of @vidhiyasb's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/vidhiyasb)](https://holopin.io/@vidhiyasb)
 
 
 
